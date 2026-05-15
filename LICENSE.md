@@ -1,4 +1,4 @@
-# 
+# perpetual trading bot custom Automation | backtesting & auto-leverage offers the most advanced perpetual trading bot, with backtesting and auto-leverage. Ideal for professional
 
 
 
